@@ -6,6 +6,15 @@
 
 ## やってること
 
+### Rebuild.fm Episode 122を聞きまくる
+
+* Rebuild.fm Episode 122
+ * http://rebuild.fm/122/
+* 文字起こしは一度しか見てない
+* とにかく意味がわからなくても聞きまくってる状態
+ * tenderloveとmiyagawaさんの英語ききやすい
+
+
 ### バイリンガルニュース聞く
 
 * バイリンガルニュース
